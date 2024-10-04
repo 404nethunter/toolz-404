@@ -1,2 +1,2 @@
-Heyy! :D need help? contact 6ndzz on dc.
+Heyy! :D need help? contact xylorii on dc.
 This scripts are homemade and you can use them ourself :D 
